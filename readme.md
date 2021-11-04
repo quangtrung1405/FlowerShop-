@@ -43,7 +43,6 @@
 <br><br>
 ![view](https://farm5.staticflickr.com/4706/40041539282_a421c8e2f9_b.jpg)
 ![view](https://farm5.staticflickr.com/4751/40041538672_1c713f168c_b.jpg)
-![view](https://farm5.staticflickr.com/4607/39175874845_3ab4f68e2d_b.jpg)
 ![view](https://farm5.staticflickr.com/4619/40041538102_34bc33a82f_b.jpg)
 ![view](https://farm5.staticflickr.com/4617/40041537752_4bddb2685c_b.jpg)
 ![view](https://farm5.staticflickr.com/4745/40041537602_acd8b204c1_b.jpg)
